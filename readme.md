@@ -4,7 +4,8 @@
 
 Можете просто полюбоваться на моего пса! 
 
-![dog buba](https://disk.yandex.ru/client/disk?idApp=client&dialog=slider&idDialog=%2Fdisk%2FIMG_5464.jpeg)
+![dog buba](https://disk.yandex.ru/i/jAi3S2SZfNGNyA)
+
 
 
 
