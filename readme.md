@@ -4,7 +4,7 @@
 
 Можете просто полюбоваться на моего пса! 
 
-[temp-Image-BQHm8-F.avif](https://postimg.cc/8svGn6zd)
+![temp-Image-BQHm8-F.avif](https://postimg.cc/8svGn6zd)
 
 
 
