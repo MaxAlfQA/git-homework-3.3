@@ -4,7 +4,7 @@
 
 Можете просто полюбоваться на моего пса! 
 
-![dog buba](https://disk.yandex.ru/i/jAi3S2SZfNGNyA)
+![temp-Image-BQHm8-F.avif](https://postimg.cc/8svGn6zd)
 
 
 
